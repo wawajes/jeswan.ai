@@ -78,5 +78,5 @@ We may update this Privacy Policy occasionally. Changes will be posted on this p
 ## Contact
 
 Questions or concerns? Reach out:
-- **X (Twitter)**: [@Jeeeeeeswa](https://x.com/Jeeeeeeswa)
+- **X (Twitter)**: [@Jeswan22](https://x.com/Jeswan22)
 - **Chrome Web Store**: [Calendar AI](https://chromewebstore.google.com/detail/calendar-ai-text-screenshot-to-event/jbceogdnbbhhhjeglpllfbdpcccfhkkd)
