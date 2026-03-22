@@ -49,4 +49,4 @@ We reserve the right to terminate or suspend access to the Extension for users w
 ## Contact
 
 Questions? Reach out:
-- **X (Twitter)**: [@Jeeeeeeswa](https://x.com/Jeeeeeeswa)
+- **X (Twitter)**: [@Jeswan22](https://x.com/Jeswan22)
